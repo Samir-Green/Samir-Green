@@ -22,9 +22,9 @@ ___🦋(SAMIR)🦋___
 ___🦋(SAMIR)🦋___
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=SAMIR-pmishra&label=Profile%20views&color=0e75b6&style=flat" alt="SAMIR-pmishra" /> </p>
 
-- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are available at [https://t.me/ehcehcemran0011223311cyber99/simplified_learner](https://t.me/ehcehcemran0011223311cyber99)
+- 👨‍💻 All of my 𝑻𝑬𝑳𝑬𝑮𝑹𝑨𝑴-𝑪𝑨𝑳𝑳-𝑩𝑶𝑿 are not available 
 ___🦋(SAMIR)🦋___
-- ⚡ Fun fact **I am funny😅**
+- ⚡ Fun fact **I am Lazy😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
